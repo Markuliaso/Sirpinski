@@ -1,0 +1,2 @@
+# Sirpinski
+Sirpisnki trekanten
